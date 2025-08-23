@@ -1,0 +1,1 @@
+# techcareer.net_veribiliminegiris_odev
